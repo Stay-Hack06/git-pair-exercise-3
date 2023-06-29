@@ -14,4 +14,7 @@ I like curry with pasta . lol, How about you? A: Smoked oysters and pork rinds
 
 4. What is your biggest accomplishment?
 
-I stood up for my freedom and continue doing that. It feels like the biggest accomplishment.
+I stood up for my freedom and continue doing that. It feels like the biggest accomplishment. Absolutely. love that
+
+5. If money was not an issue, where would your dream location to live be?
+
