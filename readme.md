@@ -18,3 +18,4 @@ I stood up for my freedom and continue doing that. It feels like the biggest acc
 
 5. If money was not an issue, where would your dream location to live be?
 
+I would like to live in Bali, Indonasia
