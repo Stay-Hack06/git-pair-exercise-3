@@ -10,4 +10,7 @@ My favorite food is Indian, mexican and thai. Anything spicy. What about you? A:
 
 3. What's a food combo that you love but others think is weird?
 
-I like curry with pasta . lol, How about you?
+I like curry with pasta . lol, How about you? A: Smoked oysters and pork rinds
+
+4. What is your biggest accomplishment?
+
